@@ -1,1 +1,0 @@
-# Dewi-suci_Ruangbelajaar
